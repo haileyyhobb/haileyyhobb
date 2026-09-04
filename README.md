@@ -11,3 +11,5 @@ Jeg synes at bilder og filmlaging er veldig kult, men jeg kan ingenting om IT. j
 
 Hva jeg håper å lære:
 Å være mer kreativ generellt. Jeg håper jeg kan utvikle måten å tenke på, og kanskje få høyere karakter og bli smartere.
+
+[Link til Gjennestad](https://www.gjennestadvgs.no)
