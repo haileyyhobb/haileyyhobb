@@ -1,3 +1,10 @@
-Hei, jeg heter Hailey, og jeg er 16 år.
+Hei, jeg heter Hailey, Jeg er fra Nærbø og bor i Tørdal, og jeg er 16 år.
 
-Jeg elsker å tegne, både tradisjonellt og digitalt. Jeg elsker også musikk, som rock, elektropunk, og nu metall. jeg samler også på manga, bamser, funko POP, og pokemon kort.
+Interessene mine:
+Tegning, både digitalt og tradisjonellt
+Samling (Funko pops, Pokemon kort, Bamser, Manga)
+Musikk(Rock, Elektropunk, Nu metal)
+Gaming, Favoritt typer er co-op, skrekk og story games
+
+Hvorfor jeg valgte IM:
+Jeg synes at bilder og filmlaging er veldig kult, men jeg kan ingenting om IT. jeg skulle egentlig gå på kunst, men medier er nokså greit. det er også kreativt, og det liker jeg.
