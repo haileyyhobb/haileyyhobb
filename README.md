@@ -1,16 +1,15 @@
-## Hi there 👋
+Hei, jeg heter Hailey, Jeg er fra Nærbø og bor i Tørdal, og jeg er 16 år.
 
-<!--
-**haileyyhobb/haileyyhobb** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+Interessene mine:
+Tegning, både digitalt og tradisjonellt
+Samling (Funko pops, Pokemon kort, Bamser, Manga)
+Musikk(Rock, Elektropunk, Nu metal)
+Gaming, Favoritt typer er co-op, skrekk og story games
 
-Here are some ideas to get you started:
+Hvorfor jeg valgte IM:
+Jeg synes at bilder og filmlaging er veldig kult, men jeg kan ingenting om IT. jeg skulle egentlig gå på kunst, men medier er nokså greit. det er også kreativt, og det liker jeg.
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+Hva jeg håper å lære:
+Å være mer kreativ generellt. Jeg håper jeg kan utvikle måten å tenke på, og kanskje få høyere karakter og bli smartere.
+
+[Link til Gjennestad](https://www.gjennestadvgs.no)
