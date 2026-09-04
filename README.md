@@ -8,3 +8,6 @@ Gaming, Favoritt typer er co-op, skrekk og story games
 
 Hvorfor jeg valgte IM:
 Jeg synes at bilder og filmlaging er veldig kult, men jeg kan ingenting om IT. jeg skulle egentlig gå på kunst, men medier er nokså greit. det er også kreativt, og det liker jeg.
+
+Hva jeg håper å lære:
+Å være mer kreativ generellt. Jeg håper jeg kan utvikle måten å tenke på, og kanskje få høyere karakter og bli smartere.
